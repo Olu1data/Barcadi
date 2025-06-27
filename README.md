@@ -18,4 +18,4 @@ Fix the midquarter drop in advertising spend by introducing a limited time offer
 
 Conclusion
 
-My review identified a strong foundation for growth, as well as operational vulnerabilities and untapped potential. Targeted initiatives will help stabilize seasonal performance, diversify of the customer base, and drive accelerated growth toward full target achiev
+My review identified a strong foundation for growth, as well as operational vulnerabilities and untapped potential. Targeted initiatives will help stabilize seasonal performance, diversify of the customer base, and drive accelerated growth toward full target achievement
